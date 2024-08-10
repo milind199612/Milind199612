@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **more complex data analyst/data science projects**
 
-- 📫 How to reach me **mkpatel199612@gmail.com**
+- 📫 How to reach me **millind1996@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
